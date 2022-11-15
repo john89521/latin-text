@@ -1,1 +1,2 @@
+Quintus Horatius Flaccus
 Horace, Latin in full Quintus Horatius Flaccus, (born December 65 BC, Venusia, Italy—died Nov. 27, 8 BC, Rome), outstanding Latin lyric poet and satirist under the emperor Augustus. The most frequent themes of his Odes and verse Epistles are love, friendship, philosophy, and the art of poetry. Horace was probably of the Sabellian hillman stock of Italy’s central highlands. His father had once been a slave but gained freedom before Horace’s birth and became an auctioneer’s assistant. 
